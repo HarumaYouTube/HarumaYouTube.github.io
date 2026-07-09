@@ -1,2 +1,2 @@
-# HarumaYouTube.github.io
-ミニタク
+# HarumaYouTubeホームページ
+HarumaYouTubeホームページへようこそ！
